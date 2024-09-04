@@ -1,1 +1,1 @@
-Trabajos de la especialización DA.
+Entregables de la especialización DA.
